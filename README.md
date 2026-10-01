@@ -1,1 +1,1 @@
-# jonghyeonshin1
+# 한신대학교 AI.SW대학 신종현 입니다.
